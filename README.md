@@ -17,4 +17,4 @@ retextured van
 - Sealyx, TG_Stig and Valantè Luize Sushi - Screenshots
 ## **__Note: the van has just been retextured by abdel4999 : __**
 
-- [original]([https://github.com/AbdeLhere/grime-van](https://fr.gta5-mods.com/vehicles/vapid-speedo-express-add-on-liveries)https://fr.gta5-mods.com/vehicles/vapid-speedo-express-add-on-liveries) 
+- [original](https://fr.gta5-mods.com/vehicles/vapid-speedo-express-add-on-liveries) 
